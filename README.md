@@ -1,7 +1,7 @@
 
 
 
-## Hi there 👋
+## Hi here. I am a Fullstack Web Developer 👋
 
 ## Knowledge is always in my scope !!! 
 
